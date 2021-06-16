@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @helenagborrella 
 - 👀 Estoy interesada en hacer colaboraciones  con artistas y programadorxs creativxs
 - 🌱 Estoy desarrollando mis habilidades como diseñadora gráfica y UX.  Me interesa la programación creativa.
-- 💞️ I’m looking to collaborate con colectivos que trabajen arte y tegnología
+- 💞️ I’m looking to collaborate con colectivos que trabajen arte, musica experimental y tegnología.
 - 📫 How to reach me  en instagram @lenagarbo.site/ Correo : lenagarbo.site@gmail.com
 
 <!---
